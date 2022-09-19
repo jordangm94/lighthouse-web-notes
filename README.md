@@ -1,1 +1,1 @@
-# [Jordan]'s Notes
+# Jordan's Notes
